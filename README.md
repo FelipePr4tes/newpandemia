@@ -1,0 +1,2 @@
+https://media.discordapp.net/attachments/1280548542519447647/1298163530075471873/image.png?ex=67189080&is=67173f00&hm=2748ad37dfe8bc3a5b7aee39c9014ae362ac00aec1226b642efd8393a36107c8&=&format=webp&quality=lossless&width=960&height=453
+https://media.discordapp.net/attachments/1280548542519447647/1298166176781828116/image.png?ex=671892f7&is=67174177&hm=c463f6032fd0e327b2ef9cb94d5a7eefe4c81b6b6bc7d8f6cfb409ca27ceeb53&=&format=webp&quality=lossless&width=960&height=453
